@@ -7,4 +7,4 @@
 - Find me in:
       [Instagram](https://www.instagram.com/david_guerrero_cata/)
       [Linkedin](https://www.linkedin.com/in/david-guerrero-cata-1a9248351)
-      [Youtube](https://www.instagram.com/david_guerrero_cata/)
+      [Youtube](https://www.youtube.com/@davidguerrerocata3908/)
