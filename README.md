@@ -5,4 +5,6 @@
 - Our Slogan is: Developing_the_Global_Code
 - ⚡ I´m looking forward to learning programming
 - Find me in:
-- ![Image](https://github.com/user-attachments/assets/43be248b-4ee6-495d-a88b-2c377d8abf37) [Instagram](https://www.instagram.com/david_guerrero_cata/)
+   [Instagram](https://www.instagram.com/david_guerrero_cata/)
+  [Linkedin](https://www.instagram.com/david_guerrero_cata/)
+  [Youtube](https://www.instagram.com/david_guerrero_cata/)
