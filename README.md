@@ -1,5 +1,6 @@
 # Hello everyone, I´m David👋
 
- ![Image](https://github.com/user-attachments/assets/6da1dd03-a752-4115-b13a-b2adbdfc1da0)
+ ![Image](https://github.com/user-attachments/assets/49050b25-bce5-415e-8520-671215bded5b)
+
 
 - ⚡ I´m looking forward to learning programming
