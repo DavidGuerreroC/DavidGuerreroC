@@ -6,5 +6,5 @@
 - ⚡ I´m looking forward to learning programming
 - Find me in:
       [Instagram](https://www.instagram.com/david_guerrero_cata/)
-      [Linkedin](https://www.instagram.com/david_guerrero_cata/)
+      [Linkedin](https://www.linkedin.com/in/david-guerrero-cata-1a9248351)
       [Youtube](https://www.instagram.com/david_guerrero_cata/)
